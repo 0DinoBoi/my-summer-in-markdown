@@ -11,3 +11,6 @@ Every day in the summer I would always be doing something active. It was either 
 <img src="https://upload.wikimedia.org/wikipedia/commons/9/92/Backyardpool.jpg" width="500" height="300"> 
 <img src="https://upload.wikimedia.org/wikipedia/en/thumb/1/1e/Baseball_%28crop%29.jpg/1200px-Baseball_%28crop%29.jpg" width="300" height="300">
 
+<h3>Goals for the School Year</h3>
+My goals for this school year to to at least have 4 A's in my classes. Also, I need to get in some hours for community service and volunteer hours because my freshman year I did not participate in any activities. For my sport, I want to have better stats in everything and make varsity this year. My final goal is to make my sophmore year a great year.
+<img src="https://i0.wp.com/thesewaneepurple.org/wp-content/uploads/2018/11/a-plus-school-letter-grade.jpg?fit=3888%2C2592&ssl=1" width="400" length="300">
